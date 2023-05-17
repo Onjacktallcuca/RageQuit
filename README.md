@@ -1,6 +1,6 @@
-# RageQuit
+# Lista de RQ atualizadas 2022 - 2023
 
-Lista de RQ atualizadas 2022 - 2023
+
 
 ++ Edson
 - comunismo

@@ -1,6 +1,4 @@
-# Lista de RQ atualizadas 2022 - 2023
-
-
+Lista de RQ atualizadas 2022 /2023/2024
 
 ++ Edson
 - comunismo
@@ -22,11 +20,17 @@
 - crítica por sua aparência de mendigo da Sé
 - motivo desconhecido ????
 - falar mal de notebook inflacionado com i5 ultrapassado
-
+- muito show de bola
 - ser agredido verbalmente (via mensagem) por todos nós o tempo todo
+- jogou o livro de presente no lixo e não sabia o que era um teste unitário
+- ameaça iminente do retorno do Marlon ao grupo
 
 ++ Buosi Boca De Leite
 - argumentos bosta da esquerda golpista #birra
 - Mal de Alzheimer
+
+++Marlon
+   • Inimizade com o Edson 
+
 
 Será que até o fim do ano essa lista aumenta? 🤔

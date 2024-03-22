@@ -30,8 +30,8 @@ Lista de RQ atualizadas 2022 /2023/2024
 - Mal de Alzheimer
 
 ++Marlon
-   • Inimizade com o Edson
-   • Recusa das desculpas do Edson
+- Inimizade com o Edson
+- Recusa das desculpas do Edson
    
 
 

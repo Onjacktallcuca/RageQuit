@@ -29,10 +29,11 @@ Lista de RQ atualizadas 2022 /2023/2024
 - argumentos bosta da esquerda golpista #birra
 - Mal de Alzheimer
 
-++Marlon
+++ Marlon
 - Inimizade com o Edson
 - Recusa das desculpas do Edson
-   
 
+++ Gilson
+- Não gostou das verdades do gov do amor fazer merda
 
 Será que até o fim do ano essa lista aumenta? 🤔
